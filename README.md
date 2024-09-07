@@ -2,4 +2,4 @@
 
 I am forcaster at Irkutsk 
 
-06.09.2024
+07.09.2024 год
